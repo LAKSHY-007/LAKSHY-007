@@ -1,4 +1,4 @@
-# 🚀 Lakshya Pendharkar 
+#  Lakshya Pendharkar 
 **AI Visionary • Full-Stack Alchemist • Decentralization Pioneer**
 
 <div align="center">
